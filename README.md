@@ -1,9 +1,8 @@
 ## Hi Bro, itz Thalassa
 
 ### About me
-> A senior. At least now...
 - Appearence: More Handsome.
-- Making: Useful Tools
+- Making: Useful Tools.
 - Experiences: None? Not at all.
 
 PS:
