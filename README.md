@@ -1,4 +1,4 @@
-## Hi Bro, itz Thalassa
+## Hi, itz Thalassa
 
 ### About me
 - Appearence: More Handsome.
