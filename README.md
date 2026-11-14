@@ -5,4 +5,4 @@
 - Making: Useful Tools.
 - Experiences: None? Not at all.
 
-> PS: AI is so powerful, as you know.
+> AI is so powerful, as you know.
